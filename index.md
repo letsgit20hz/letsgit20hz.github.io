@@ -8,3 +8,6 @@ Nichtsdestotrotz kommt er auch hin und wieder durch die Werksfeuerwehrfeuerlösc
 * blind wie ein Maulwurf
 * orientierungslos ohne Ende
 * hört säckeweise Reis umfallen
+
+> Was soll ich sagen: ich versteh nur Eygübten!
+> So ein Scheibenkleister...
