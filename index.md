@@ -11,3 +11,5 @@ Nichtsdestotrotz kommt er auch hin und wieder durch die Werksfeuerwehrfeuerlösc
 
 > Was soll ich sagen: ich versteh nur Eygübten!
 > So ein Scheibenkleister...
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/1/1e/Face-confused.svg"/>
